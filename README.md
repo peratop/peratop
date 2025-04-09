@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @peratop
-- 👀 I’m interested in fullstack and graphic design
+- 👀 I’m interested in fullstack and cybersec
 - 📫 How to reach me @leo_peratop on Instagram
 - 😄 Pronouns: he/him
 
